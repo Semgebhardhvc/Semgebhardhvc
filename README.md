@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sem gebhard
+- 👀 I’m interested in fitness
+- 🌱 I’m currently learning on school
+- 📫 How to reach me sem.gebhard@hvc.nl
